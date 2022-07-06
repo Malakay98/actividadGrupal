@@ -1,3 +1,3 @@
 Lider: Franco Fernández
-Julián Delgado
+Julián Delgado Funti
 Augusto Santos Rieiro
